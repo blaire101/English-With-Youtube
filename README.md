@@ -10,50 +10,43 @@
 
 ## 1. English WIth Lucy
 
+[![Pronunciation Training](https://img.youtube.com/vi/jrwglP9EQOU/0.jpg)](https://www.youtube.com/watch?v=jrwglP9EQOU)  
 **Pronunciation Training: 3 Ways to speak English MUCH more clearly!**
 
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jrwglP9EQOU" frameborder="0" allowfullscreen></iframe>
-
 ---
 
-## 2. **Tech With Tim**
+## 2. Tech With Tim
 
+[![Software Job Market](https://img.youtube.com/vi/9PpNmDgUDH8/0.jpg)](https://www.youtube.com/watch?v=9PpNmDgUDH8)  
 **My Honest Thoughts on the Software Engineering Job Market in 2025**
 
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9PpNmDgUDH8" frameborder="0" allowfullscreen></iframe>
-
 ---
 
-## 3. [Pronunciation with Emma](https://www.youtube.com/@Pronunciationwithemma)
+## 3. Pronunciation with Emma
 
+[![Pronunciation Emma](https://img.youtube.com/vi/FmUS_8z2yP8/0.jpg)](https://www.youtube.com/watch?v=FmUS_8z2yP8)  
 **How to Remember Pronunciation When You Speak English**
 
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FmUS_8z2yP8" frameborder="0" allowfullscreen></iframe>
-
 ---
 
-## 4. [**Wei Kank – 伟康英语**](https://www.youtube.com/@Weikank)
+## 4. 伟康英语 WeiKank
 
+[![听懂所有英文](https://img.youtube.com/vi/BOmj1Fz0TYo/0.jpg)](https://www.youtube.com/watch?v=BOmj1Fz0TYo)  
 **听懂所有英文的唯一办法，就是坚持各种题材输入**
 
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BOmj1Fz0TYo" frameborder="0" allowfullscreen></iframe>
-
 ---
 
-## 5. *Speak English With Vanessa*
+## 5. Speak English With Vanessa
 
+[![Fluent in English](https://img.youtube.com/vi/ZYCZ-fD44E0/0.jpg)](https://www.youtube.com/watch?v=ZYCZ-fD44E0)  
 **If you do THIS, you're fluent in English**
 
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZYCZ-fD44E0" frameborder="0" allowfullscreen></iframe>
-
+[![Daily Routine](https://img.youtube.com/vi/nnDVoc5GwSc/0.jpg)](https://www.youtube.com/watch?v=nnDVoc5GwSc)  
 **Think and Speak in English: your daily routine**
-
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nnDVoc5GwSc" frameborder="0" allowfullscreen></iframe>
 
 ---
 
-## 6. **Kevin 英文不難**
+## 6. Kevin 英文不難
 
+[![Kevin Learn English](https://img.youtube.com/vi/TKyQk6eMLFs/0.jpg)](https://www.youtube.com/watch?v=TKyQk6eMLFs)  
 **從零自學英文，我會這樣開始**
-
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TKyQk6eMLFs" frameborder="0" allowfullscreen></iframe>
