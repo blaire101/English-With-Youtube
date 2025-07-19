@@ -50,3 +50,8 @@
 
 [![Kevin Learn English](https://img.youtube.com/vi/TKyQk6eMLFs/0.jpg)](https://www.youtube.com/watch?v=TKyQk6eMLFs)  
 **從零自學英文，我會這樣開始**
+
+## 7. 布鲁斯法则
+
+[![Kevin Learn English](https://img.youtube.com/vi/bqtdkWLmBfg/0.jpg)]([https://www.youtube.com/watch?v=TKyQk6eMLFs](https://www.youtube.com/watch?v=bqtdkWLmBfg))  
+我是如何在12个月的时间里习得一口流利的英文|3个我每天都做的练习
