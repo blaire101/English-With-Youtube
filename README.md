@@ -8,6 +8,14 @@
 
 ---
 
+## 0. Leah's English
+
+[![Pronunciation Training](https://img.youtube.com/vi/j2xpM0dz12w/0.jpg)](https://www.youtube.com/watch?v=j2xpM0dz12w)  
+**scrolling on your phone!**
+
+
+
+
 ## 1. English WIth Lucy
 
 [![Pronunciation Training](https://img.youtube.com/vi/jrwglP9EQOU/0.jpg)](https://www.youtube.com/watch?v=jrwglP9EQOU)  
