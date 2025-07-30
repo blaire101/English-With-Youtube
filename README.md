@@ -10,10 +10,8 @@
 
 ## 0. Leah's English
 
-[![Pronunciation Training](https://img.youtube.com/vi/j2xpM0dz12w/0.jpg)](https://www.youtube.com/watch?v=j2xpM0dz12w)  
-**scrolling on your phone!**
-
-
+[![Pronunciation Training](https://img.youtube.com/vi/C3dDKvUiduo/0.jpg)](https://www.youtube.com/watch?v=C3dDKvUiduo)  
+**This is how much I spend in a month.**
 
 
 ## 1. English WIth Lucy
