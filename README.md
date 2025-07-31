@@ -40,6 +40,13 @@
 [![听懂所有英文](https://img.youtube.com/vi/BOmj1Fz0TYo/0.jpg)](https://www.youtube.com/watch?v=BOmj1Fz0TYo)  
 **听懂所有英文的唯一办法，就是坚持各种题材输入**
 
+- https://youtube.com/@gbvoiceacademy?si=tjOJHuedkGuw-XUG
+- https://youtube.com/@learnenglishwithbobthecanadian?si=SCrW3qZ3slPh_lBj   
+- https://youtube.com/@speakenglishwithvanessa?si=fttDZjZwGNcKYfCq
+- https://youtube.com/@ascottinchina-ug5iy?si=s69pQwJqqBkHXK59
+- https://youtube.com/@twomadexplorers?si=eDGLD_xCoDKxaFq0
+
+
 ---
 
 ## 5. Speak English With Vanessa
