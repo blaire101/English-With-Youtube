@@ -46,8 +46,10 @@
 - https://youtube.com/@ascottinchina-ug5iy?si=s69pQwJqqBkHXK59
 - https://youtube.com/@twomadexplorers?si=eDGLD_xCoDKxaFq0
 
-
----
+<details>
+<summary>💡The key to learning English is to watch tons of videos that interest you</summary>
+https://www.youtube.com/watch?v=EN9ATY2b6fA
+</details>
 
 ## 5. Speak English With Vanessa
 
