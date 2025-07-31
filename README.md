@@ -10,8 +10,8 @@
 
 ## 0. Leah's English
 
-[![Pronunciation Training](https://img.youtube.com/vi/C3dDKvUiduo/0.jpg)](https://www.youtube.com/watch?v=C3dDKvUiduo)  
-**This is how much I spend in a month.**
+[![Pronunciation Training](https://img.youtube.com/vi/dHZMO1qiXDw/0.jpg)](https://www.youtube.com/watch?v=dHZMO1qiXDw)  
+**Do American parents pressure you to get married?**
 
 
 ## 1. English WIth Lucy
