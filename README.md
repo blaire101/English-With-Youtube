@@ -35,21 +35,10 @@
 
 ---
 
-## 4. 伟康英语 WeiKank
+## 4. Bob the Canadian
 
-[![听懂所有英文](https://img.youtube.com/vi/BOmj1Fz0TYo/0.jpg)](https://www.youtube.com/watch?v=BOmj1Fz0TYo)  
-**听懂所有英文的唯一办法，就是坚持各种题材输入**
-
-<details>
-<summary>💡The key to learning English is to watch tons of videos that interest you</summary>
-https://www.youtube.com/watch?v=EN9ATY2b6fA
-
-- https://youtube.com/@gbvoiceacademy?si=tjOJHuedkGuw-XUG
-- https://youtube.com/@learnenglishwithbobthecanadian?si=SCrW3qZ3slPh_lBj   
-- https://youtube.com/@speakenglishwithvanessa?si=fttDZjZwGNcKYfCq
-- https://youtube.com/@ascottinchina-ug5iy?si=s69pQwJqqBkHXK59
-- https://youtube.com/@twomadexplorers?si=eDGLD_xCoDKxaFq0
-</details>
+[![听懂所有英文](https://img.youtube.com/vi/5-T6Xqlh6BU/0.jpg)](https://www.youtube.com/watch?v=5-T6Xqlh6BU)  
+**Learn English with Bob the Canadian**
 
 ## 5. Speak English With Vanessa
 
@@ -74,3 +63,9 @@ https://www.youtube.com/watch?v=EN9ATY2b6fA
 ## 8. KevinFeng 冯凯文
 [![Kevin Learn English](https://img.youtube.com/vi/b4vbS4mJfRY/0.jpg)]([https://www.youtube.com/watch?v=b4vbS4mJfRY](https://www.youtube.com/watch?v=b4vbS4mJfRY))  
 从英文白痴到流利，你可以复制的逆袭方式（过程全记录）
+
+## 9. 伟康英语 WeiKank
+
+[![听懂所有英文](https://img.youtube.com/vi/BOmj1Fz0TYo/0.jpg)](https://www.youtube.com/watch?v=BOmj1Fz0TYo)  
+**听懂所有英文的唯一办法，就是坚持各种题材输入**
+
