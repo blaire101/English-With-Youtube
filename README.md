@@ -64,7 +64,7 @@
 [![Kevin Learn English](https://img.youtube.com/vi/b4vbS4mJfRY/0.jpg)]([https://www.youtube.com/watch?v=b4vbS4mJfRY](https://www.youtube.com/watch?v=b4vbS4mJfRY))  
 从英文白痴到流利，你可以复制的逆袭方式（过程全记录）
 
-## 9. 伟康英语 WeiKank
+## 9. 伟康英语 WeiKank ✅
 
 [![听懂所有英文](https://img.youtube.com/vi/BOmj1Fz0TYo/0.jpg)](https://www.youtube.com/watch?v=BOmj1Fz0TYo)  
 **听懂所有英文的唯一办法，就是坚持各种题材输入**
