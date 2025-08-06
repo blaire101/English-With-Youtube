@@ -9,7 +9,7 @@
 ---
 
 
-## 10. 即凉Lion
+## 10. 即凉Lion  （复利是每天坚持， Output 是重要的）
 
 [![听懂所有英文](https://img.youtube.com/vi/WIcWp9Q_z4U/0.jpg)](https://www.youtube.com/watch?v=WIcWp9Q_z4U)  
 
