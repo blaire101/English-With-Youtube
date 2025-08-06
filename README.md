@@ -14,6 +14,7 @@
 [![听懂所有英文](https://img.youtube.com/vi/WIcWp9Q_z4U/0.jpg)](https://www.youtube.com/watch?v=WIcWp9Q_z4U)  
 
 **我是如何用油管学习英语的（How I learned English with YouTube）**
+![怎样练口语？分享我的5个口语小心得（5 ways to improve your English speaking skills）](https://www.youtube.com/watch?v=TOio8qSnQD4)
 
 
 ## 0. Leah's English
