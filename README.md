@@ -9,15 +9,6 @@
 ---
 
 
-## 10. 即凉Lion  （复利是每天坚持， Output 是重要的）
-
-[![听懂所有英文](https://img.youtube.com/vi/WIcWp9Q_z4U/0.jpg)](https://www.youtube.com/watch?v=WIcWp9Q_z4U)  
-
-**我是如何用油管学习英语的（How I learned English with YouTube）**
-
-[![5 ways to improve your English speaking skills](https://img.youtube.com/vi/TOio8qSnQD4/0.jpg)](https://www.youtube.com/watch?v=TOio8qSnQD4)  
-
-
 ## 0. Leah's English
 
 [![Pronunciation Training](https://img.youtube.com/vi/Jo73Bl_fLIM/0.jpg)](https://www.youtube.com/watch?v=Jo73Bl_fLIM)  
@@ -78,3 +69,12 @@
 
 [![听懂所有英文](https://img.youtube.com/vi/BOmj1Fz0TYo/0.jpg)](https://www.youtube.com/watch?v=BOmj1Fz0TYo)  
 **听懂所有英文的唯一办法，就是坚持各种题材输入**
+
+## 10. 即凉Lion  （复利是每天坚持， Output 是重要的）
+
+[![听懂所有英文](https://img.youtube.com/vi/WIcWp9Q_z4U/0.jpg)](https://www.youtube.com/watch?v=WIcWp9Q_z4U)  
+
+**我是如何用油管学习英语的（How I learned English with YouTube）**
+
+[![5 ways to improve your English speaking skills](https://img.youtube.com/vi/TOio8qSnQD4/0.jpg)](https://www.youtube.com/watch?v=TOio8qSnQD4)  
+
