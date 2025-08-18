@@ -11,8 +11,8 @@
 
 ## 0. Leah's English
 
-[![Pronunciation Training](https://img.youtube.com/vi/Jo73Bl_fLIM/0.jpg)](https://www.youtube.com/watch?v=Jo73Bl_fLIM)  
-**All-English｜I can't seem to find a balance between work and life, but I'm still very happy**
+[![Pronunciation Training](https://img.youtube.com/vi/RpT6NopW47w/0.jpg)](https://www.youtube.com/watch?v=RpT6NopW47w)  
+**All-English｜Comparison is the thief of joy.**
 
 
 ## 1. English WIth Lucy
