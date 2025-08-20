@@ -34,7 +34,10 @@
 [![Pronunciation Emma](https://img.youtube.com/vi/FmUS_8z2yP8/0.jpg)](https://www.youtube.com/watch?v=FmUS_8z2yP8)  
 **How to Remember Pronunciation When You Speak English**
 
----
+## Easy Lizzy English 
+
+[![Pronunciation Emma](https://img.youtube.com/vi/Icw9RrueV2A/0.jpg)](https://www.youtube.com/watch?v=Icw9RrueV2A)  
+**Learn English While Cooking With Me! 😉 | Everyday English**
 
 ## 4. Cherie Brooke Luo
 
