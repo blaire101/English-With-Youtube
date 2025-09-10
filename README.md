@@ -8,16 +8,15 @@
 
 ---
 
-
-## 1. Speak English With Tiffani
-
-[![Pronunciation Training](https://img.youtube.com/vi/VS1FIVkXvE8/0.jpg)](https://www.youtube.com/watch?v=VS1FIVkXvE8)  
-**HOW TO SPEAK ENGLISH FLUENTLY | 2 SIMPLE STEPS TO SPEAK ENGLISH FLUENTLY & CONFIDENTLY LIKE A NATIVE**
-
-## 2. Leah's English
+## 1. Leah's English
 
 [![Pronunciation Training](https://img.youtube.com/vi/RpT6NopW47w/0.jpg)](https://www.youtube.com/watch?v=RpT6NopW47w)  
 **All-English｜Comparison is the thief of joy.**
+
+## 2. Speak English With Tiffani
+
+[![Pronunciation Training](https://img.youtube.com/vi/VS1FIVkXvE8/0.jpg)](https://www.youtube.com/watch?v=VS1FIVkXvE8)  
+**HOW TO SPEAK ENGLISH FLUENTLY | 2 SIMPLE STEPS TO SPEAK ENGLISH FLUENTLY & CONFIDENTLY LIKE A NATIVE**
 
 ## 3. Speak English With Vanessa
 
